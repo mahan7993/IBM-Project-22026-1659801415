@@ -1,1 +1,1 @@
-This folder contains the assignments of M1 Lead - BALAJI RAGAVENDRA RAJ (4211191061004)
+This folder contains the assignments of M2 Lead - BALAJI RAGAVENDRA RAJ (4211191061004)
